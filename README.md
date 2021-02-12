@@ -15,3 +15,4 @@ If you know me from somewhere, it's probably from the Minecraft server **2builde
 ![Franklin D. Roosevelt](https://github.com/brochacho6/brochacho6/blob/main/89f4ec83-4bdc-4741-9683-dc87c1b7517e.png?raw=true)
 
 Franklin D. Roosevelt is based.
+And just to clarify any missconceptions there might be, yes, I am a Christian.

@@ -5,6 +5,10 @@ If you know me from somewhere, it's probably from the Minecraft server **2builde
 
 ### Profiles
 - Discord @ brochacho#8087
+- [My Youtube Channel (2b2t Related Content)](https://www.youtube.com/channel/UCpsb8byLRWj1PgOKQ9S3MgA)
 - [My Steam Profile](https://steamcommunity.com/id/brokako "Steam Profile")
 - [My Reddit Account](https://www.reddit.com/user/AlpacaPower69)
 - [My RateYourMusic](https://rateyourmusic.com/~brochan)
+
+#### May God Bless You All :)
+![My Favorite President](https://imgur.com/a/wLiVDgx)

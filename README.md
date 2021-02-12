@@ -4,5 +4,5 @@ Hello, my name is [Redacted], but I usually go by my online alias *Brochacho*. I
 If you know me from somewhere, it's probably from the Minecraft server **2builders2tools** :) Feel free to add me on discord @ brochacho#8087 if you need to talk to me!
 
 ### Profiles
-1. Discord @ brochacho#8087
-2. [I'm an inline-style link with title](https://steamcommunity.com/id/brokako "Steam Profile")
++Discord @ brochacho#8087
++[My Steam Profile](https://steamcommunity.com/id/brokako "Steam Profile")

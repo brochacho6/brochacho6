@@ -11,4 +11,5 @@ If you know me from somewhere, it's probably from the Minecraft server **2builde
 - [My RateYourMusic](https://rateyourmusic.com/~brochan)
 
 #### May God Bless You All :)
-![My Favorite President](https://imgur.com/a/wLiVDgx)
+
+![Franklin D. Roosevelt](https://github.com/brochacho6/brochacho6/blob/main/89f4ec83-4bdc-4741-9683-dc87c1b7517e.png?raw=true)
